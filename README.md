@@ -1,4 +1,4 @@
-# -Daily Gazette-
+# -⭐️ 🗞Daily Gazette 📰-
 <br/>
 <br/>
 
