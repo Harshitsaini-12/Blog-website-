@@ -1,4 +1,4 @@
-# Blog-website-
+# -Daily Gazette-
 <br/>
 <br/>
 
